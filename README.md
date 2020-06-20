@@ -50,7 +50,7 @@
 
 ---
 <div align=center>请点击下面的“我要三退”</div>
-<div align=center><b><a href="http://141.164.37.227:10000/form/form.html"> * * * 我要三退 * * * </a></b></div>
+<div align=center><b><a href="https://is.gd/R12rct"> * * * 我要三退 * * * </a></b></div>
 
 ---
 
