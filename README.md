@@ -4,8 +4,7 @@
 <div align=center>请点击下面的“我要三退”</div>
 <div align=center><b><a href="https://is.gd/R12rct"> * * * 我要三退 * * * </a></b></div><br/>
        
-<div align="center"><img src=""> &nbsp; <img  src="    <td colspan="2" align="center"><img src="https://cdn.jsdelivr.net/gh/pwgy/pic/st1.jpg"></td> 
-"> </div>    
+<div align="center"><img src=""> &nbsp; <img  src="    <td colspan="2" align="center"><img src="https://cdn.jsdelivr.net/gh/pwgy/pic/st1.jpg"> </td>  </div>    
 
 近期，越来越多的证据指出，武汉的「共产肺炎」是中共的生化实验室泄漏所致。更是由于它极力掩盖疫情，造成1个月的时间，病毒无人控制，最后疫情迅速扩散致无法收拾，现在更蔓延到全世界，危害全世界，败坏中国人的声誉。
 
