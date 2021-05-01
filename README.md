@@ -2,7 +2,7 @@
 
 <div align=center><img src="https://www.spiritrockshop.com/images/hello_pointing_finger.gif" height="70" width="125"/></div>
 <div align=center>请点击下面的“我要三退”</div>
-<div align=center><b><a href="https://www.xeutj.cyou/?key=htpixojsztqpzdsv&pin=63955520&ag=ogQuit&from=pw2"> * * * 我要三退 * * * </a></b></div><br/>
+<div align=center><b><a href="https://www.iwme.work/?key=yvqhfclcgpkqfdxo&pin=66584831&ag=ogQuit&from=pw2"> * * * 我要三退 * * * </a></b></div><br/>
 <div align=center><img src="https://github.com/pwgy/pic/blob/master/jxjxxdjRTGeA6pUUbteY.jpeg"/> </div>      
 近期，越来越多的证据指出，武汉的「共产肺炎」是中共的生化实验室泄漏所致。更是由于它极力掩盖疫情，造成1个月的时间，病毒无人控制，最后疫情迅速扩散致无法收拾，现在更蔓延到全世界，危害全世界，败坏中国人的声誉。
 
@@ -30,7 +30,7 @@
 
 ---
 <div align=center>请点击下面的“我要三退”</div>
-<div align=center><b><a href="https://www.xeutj.cyou/?key=htpixojsztqpzdsv&pin=63955520&ag=ogQuit&from=pw2"> * * * 我要三退 * * * </a></b></div>
+<div align=center><b><a href="https://www.iwme.work/?key=yvqhfclcgpkqfdxo&pin=66584831&ag=ogQuit&from=pw2"> * * * 我要三退 * * * </a></b></div>
 
 ---
 <br/>
@@ -48,7 +48,7 @@
 
 ---
 <div align=center>请点击下面的“我要三退”</div>
-<div align=center><b><a href="https://www.xeutj.cyou/?key=htpixojsztqpzdsv&pin=63955520&ag=ogQuit&from=pw2"> * * * 我要三退 * * * </a></b></div>
+<div align=center><b><a href="https://www.iwme.work/?key=yvqhfclcgpkqfdxo&pin=66584831&ag=ogQuit&from=pw2"> * * * 我要三退 * * * </a></b></div>
 
 ---
 
