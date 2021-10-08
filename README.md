@@ -26,8 +26,6 @@
 <br/>
 **您在这里“三退”（点点鼠标即可）是安全的，您点击下面的“我要三退”，即可同意“三退”，我们将代您取一个化名，在大纪元“三退网站”声明“三退”。不仅不会影响您的工作与生活，反而会遇难呈祥，逢凶化吉。*
 
-<div align=center><img src="https://www.spiritrockshop.com/images/hello_pointing_finger.gif" height="70" width="125"/></div>
-
 ---
 <div align=center>请点击下面的“我要三退”</div>
 <div align=center><b><a href="https://eqbpwckh.azureedge.net/?key=wjsottsjpndjwfkg&pin=65881581&ag=ogQuit&from=pw2"> * * * 我要三退 * * * </a></b></div>
@@ -43,9 +41,6 @@
 <br/><br/>
 天网恢恢，善恶分明；苦海有边，生死一念。曾被历史上最邪恶的魔教所欺骗的人，曾被邪恶打上兽的印记的人，请抓住这稍纵即逝的良机！
 <br/><br/>
-
-<div align=center><img src="https://www.spiritrockshop.com/images/hello_pointing_finger.gif" height="70" width="125"/></div>
-
 ---
 <div align=center>请点击下面的“我要三退”</div>
 <div align=center><b><a href="https://eqbpwckh.azureedge.net/?key=wjsottsjpndjwfkg&pin=65881581&ag=ogQuit&from=pw2"> * * * 我要三退 * * * </a></b></div>
