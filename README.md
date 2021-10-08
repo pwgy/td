@@ -1,6 +1,6 @@
 <div align=center><b>退出中共不是政治问题，而是道德问题：中共是魔教，别为中共作陪葬！天灭中共，“三退”保平安</b></div><br/>
 
-<div align=center><img src="https://www.spiritrockshop.com/images/hello_pointing_finger.gif" height="70" width="125"/></div>
+
 <div align=center>请点击下面的“我要三退”</div>
 <div align=center><b><a href="https://eqbpwckh.azureedge.net/?key=wjsottsjpndjwfkg&pin=65881581&ag=ogQuit&from=pw2"> * * * 我要三退 * * * </a></b></div><br/>
 <div align=center><img src="https://github.com/pwgy/pic/blob/master/jxjxxdjRTGeA6pUUbteY.jpeg"/> </div>      
